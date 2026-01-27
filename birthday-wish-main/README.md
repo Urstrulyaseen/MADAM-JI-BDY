@@ -1,1 +1,0 @@
-May the blessings of the Ahlul Bayt be upon you. May Imam Ali's wisdom guide you, Lady Fatimah's purity inspire you, Imam Hassan's patience strengthen you, and Imam Hussain's courage empower you. May you always walk in the light of their teachings and find solace in their love.😊🎉🎊🍧🍩🎂🍰🍫🍬💫
